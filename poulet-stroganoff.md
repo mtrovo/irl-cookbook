@@ -10,7 +10,7 @@
 - 2 1/4 tasses	bouillon de poulet (560 mL)
 - 36	champignons de Paris (blancs), tranchés finement (500 g)
 - 1/3 tasse	pâte de tomates (85 mL)
-- 1/2 tasse	crème à fouetter 35% (125 mL)
+- 1/2 tasse	crème mascarpone (125 mL)
 - 5 c.à thé	sauce Worcestershire (25 mL)
 - sel [facultatif]		
 -poivre au goût [facultatif]
